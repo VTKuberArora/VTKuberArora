@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on project : humanoid thermostat
 - 📫 How to reach me : email - kuberarora2050@icloud.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Developer and Entrepreneur from 8yrs
+- ⚡ Fun fact: Updating Soon...
 
 <!---
 VTKuberArora/VTKuberArora is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
